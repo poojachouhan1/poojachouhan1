@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @poojachouhan1, Founder and Director of @icoregeneration
+- 👋 Hi, I’m @poojachouhan1
 - 👀 I’m interested in new technology, AI, Blockchain
 - 🌱 I’m currently learning and improving with digital transformation
 - 📫 How to reach me ... pooja@icoregeneration.com or contact@icoregeneration.com
